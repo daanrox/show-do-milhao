@@ -9,7 +9,7 @@ Para um melhor desempenho, e segurança utilize a hospedagem na Hostinger atrav�
 Aplicação 100% funcional, caso tenha interesse em adquirir outros modelos, entre em contato +5531992812273
 
 # Vídeo demonstrativo[
-https://www.youtube.com/watch?v=prxYWsKgvTQ](https://www.youtube.com/watch?v=prxYWsKgvTQ)
+[https://www.youtube.com/watch?v=prxYWsKgvTQ](https://www.youtube.com/watch?v=prxYWsKgvTQ)
 
 # Doação
 
